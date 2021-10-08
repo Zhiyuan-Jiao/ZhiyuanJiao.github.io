@@ -4,9 +4,11 @@
 
 <br>
 
-zkjiao73@gmail.com
+[Email](zkjiao73@gmail.com)
 
-http://www.linkedin.com/in/zhiyuan-jiao-5a8795172
+[Linkedin](http://www.linkedin.com/in/zhiyuan-jiao-5a8795172)
+
+[GitHub](https://github.com/Zhiyuan-Jiao)
 <br>
 <br>
 ## Summary
